@@ -9,6 +9,7 @@
 -I've done coding for about five years now, I've done drawings ever since I learned how to use a pencil (quite literally...) also I'm coding a danmaku game
 
   also I got my wife a cat because yes:
+  
                               ╱|、
                           (˚ˎ 。7  
                            |、˜〵          
